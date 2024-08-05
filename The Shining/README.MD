@@ -1,1 +1,1 @@
-This is the wallpaper from RPG game the shining, It's in HD. 
+This is the wallpaper from RPG game The Shining. It's in HD. 
