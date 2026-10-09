@@ -1,4 +1,4 @@
-<img src="https://i.ibb.co/QjbS5xxY/sun-hud-alt.png" alt="Picture from the sun Tribal Sun Free Game" border="0" width="128px" height="96px">
+<img src="https://i.ibb.co/QjbS5xxY/sun-hud-alt.png" alt="Picture from the sun Tribal Sun Free Game" border="0" width="128px" height="128px">
 <br>
 Wallpapers from the game Tribal Sun. It`s free! Enjoy!
 <br>
